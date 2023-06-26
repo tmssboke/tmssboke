@@ -1,9 +1,16 @@
-#汤姆叔叔 最新地址发布
-#导 航 永 久 域 名Https://tvtom8.cc
-##⭐️ 👉 地址一 ：HttpS://tomtv811.com
-##⭐️ 👉 备用导航 ：HttpS://tomtv812.com
-##‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
-###‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
-##📧 邮箱联系方式: uncletomfabudizhi@gmail.com （发送任意内容获取最新地址）
-##Telegram频道，欢迎关注！
-##谨记永久发布页哦！Https://tvtom8.cc
+#汤姆叔叔影院最新地址发布
+
+##导航永域名：Https://tvtom8.cc
+
+##⭐️ 👉访问地址： HttpS://tomtv811.com
+
+##⭐️ 👉备用导航：HttpS://tomtv812.com
+##‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
+
+##‼️请使用Ctrl+D进行收藏本站!|电脑/Ipad/手机在线播放‼️
+
+##📧邮箱联系方式: uncletomfabudizhi@gmail.com（发送任意内容获取最新地址）
+
+###‼️请使用Ctrl+D进行收藏本站!|电脑/Ipad/手机在线播放‼️
+
+###谨记永远发布页哦！Https://tvtom8.cc
