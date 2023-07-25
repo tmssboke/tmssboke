@@ -2,9 +2,9 @@
 
 ##导航永域名：Https://tvtom8.cc
 
-##⭐️ 👉访问地址： HttpS://tomtv811.com
+##⭐️ 👉访问地址： HttpS://tomtv060.cc
 
-##⭐️ 👉备用导航：HttpS://tomtv812.com
+##⭐️ 👉备用导航：HttpS://tomtv061.cc
 ##‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 
 ##‼️请使用Ctrl+D进行收藏本站!|电脑/Ipad/手机在线播放‼️
